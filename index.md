@@ -1,6 +1,7 @@
 ## Baby Shower
 
 [Target](https://www.target.com)
+
 [Amazon](https://www.amazon.com)
 
 ## Wedding Details (Archive)
