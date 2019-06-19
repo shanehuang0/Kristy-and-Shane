@@ -1,10 +1,12 @@
-## Wedding Details
+## Baby Shower
 
-[Information about wedding weekend](https://withjoy.com/kristyandshane/), including travel/lodging information, venue information, event schedule, and Frequently Asked Questions.
+[Target](https://www.target.com)
+[Amazon](https://www.amazon.com)
 
-## RSVP
+## Wedding Details (Archive)
 
-[Submit or modify your RSVP here](http://kristyandshane.rsvpify.com)
+[Past Information about our wedding weekend](https://withjoy.com/kristyandshane/), 
+
 
 ### Why is this here?
 
