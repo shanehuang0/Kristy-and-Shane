@@ -1,4 +1,4 @@
-## Baby Shower
+## Baby Shower Details
 
 [Target Registry](https://tgt.gifts/kristyandshane)
 
