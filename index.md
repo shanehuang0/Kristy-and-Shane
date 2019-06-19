@@ -1,8 +1,8 @@
 ## Baby Shower
 
-[Target](https://tgt.gifts/kristyandshane)
+[Target Registry](https://tgt.gifts/kristyandshane)
 
-[Amazon](https://www.amazon.com/baby-reg/37V6C0PN77DEZ)
+[Amazon Registry](https://www.amazon.com/baby-reg/37V6C0PN77DEZ)
 
 ## Wedding Details (Archive)
 
