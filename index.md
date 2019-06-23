@@ -1,7 +1,7 @@
 ## Baby Shower Details
 
-Saturday, July 27, 2019
-1pm
+Saturday, July 27, 2019  
+1:00 pm  
 Alexandria, Virginia
 
 ## Buy us stuff
