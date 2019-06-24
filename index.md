@@ -11,7 +11,7 @@ Alexandria, Virginia
 
 ## Buy us stuff (please)
 
-If you're interested in getting stuff for Baby Huang, we have created two registries. We're already buried in baby clothes generously donated by friends and family, so we decided to keep baby clothes off the registry.
+If you're interested in getting stuff for Baby Huang, we have created two registries. We're already buried in baby clothes generously donated by friends and family, so we decided to keep baby clothes off the registry:
 
 [Target Registry](https://www.target.com/gift-registry/giftgiver?registryId=ce646a12a4a94abb9727a08cfefd01c0)
 
