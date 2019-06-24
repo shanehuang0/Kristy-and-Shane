@@ -1,8 +1,13 @@
+## Baby Details
+
+Baby Girl Huang is expected in October 2019!
+
 ## Baby Shower Details
 
 Saturday, July 27, 2019  
 1:00 pm  
 Alexandria, Virginia
+(more details to follow)
 
 ## Buy us stuff (please)
 
