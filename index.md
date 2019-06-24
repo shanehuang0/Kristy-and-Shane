@@ -2,7 +2,7 @@
 
 Baby Girl Huang is expected in October 2019!
 
-## Baby Shower Details
+## Baby Shower
 
 Saturday, July 27, 2019  
 1:00 pm  
