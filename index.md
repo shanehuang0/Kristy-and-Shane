@@ -6,8 +6,12 @@ Baby Girl Huang is expected in October 2019!
 
 Saturday, July 27, 2019  
 1:00 pm  
-Alexandria, Virginia
-(more details to follow)
+
+The Turman Residence
+502 W Taylor Run Pkwy
+Alexandria, VA 22314
+
+[Google Maps Link](https://goo.gl/maps/nqCutBqADBK1rNfR8)
 
 ## Buy us stuff (please)
 
